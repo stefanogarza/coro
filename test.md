@@ -50,3 +50,5 @@ O tu che dormi destati
 Astro del Ciel
 
 Dio s'è fatto come noi
+
+Adeste Fideles
