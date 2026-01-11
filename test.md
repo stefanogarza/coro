@@ -33,3 +33,20 @@ Dal sorgere del sole
 In notte placida
 
 Gloria a Gesù (Joy to the world)
+
+### Battesimo di Gesù
+#### 11 gennaio 2026
+
+Dal sorgere del sole
+
+Alleluja al Redentore
+
+Santo Cansani
+
+Agnello di Dio
+
+O tu che dormi destati
+
+Astro del Ciel
+
+Dio s'è fatto come noi
