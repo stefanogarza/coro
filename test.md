@@ -56,6 +56,8 @@ Dio s'è fatto come noi
 
 Cantate al Signore Alleluja
 
+Gloria de Lourdes
+
 Alleluja, passeranno i cieli
 
 Tu sei l'Offerta
@@ -65,6 +67,8 @@ Dio s'è fatto come noi
 Santo Cansani
 
 Agnello di Dio
+
+Dio s'è fatto come noi
 
 Eccomi !
 
@@ -84,6 +88,5 @@ Agnello di Dio
 Vieni e seguimi
 
 Vocazione
-
 
 Adeste Fideles
