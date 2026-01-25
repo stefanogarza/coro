@@ -1,6 +1,6 @@
 ## Anno A - 2026
 
-### Seconda domenica dopo Natale
+### Seconda domenica dopo Natale - Anno A
 #### 4 gennaio 2026
 
 Gloria de Lourdes
@@ -17,7 +17,7 @@ Verbo fatto carne
 
 Tu scendi dalle stelle
 
-### Epifania
+### Epifania - Anno A
 Adeste Fideles
 
 Gloria de Lourdes
@@ -34,7 +34,7 @@ In notte placida
 
 Gloria a Gesù (Joy to the world)
 
-### Battesimo di Gesù
+### Battesimo di Gesù - Anno A
 #### 11 gennaio 2026
 
 Dal sorgere del sole
@@ -50,5 +50,40 @@ O tu che dormi destati
 Astro del Ciel
 
 Dio s'è fatto come noi
+
+### II domenica del Tempo Ordinario - Anno A
+#### 18 gennaio 2026
+
+Cantate al Signore Alleluja
+
+Alleluja, passeranno i cieli
+
+Tu sei l'Offerta
+
+Dio s'è fatto come noi
+
+Santo Cansani
+
+Agnello di Dio
+
+Eccomi !
+
+### III domenica del Tempo Ordinario - Anno A
+#### 25 gennaio 2026
+
+Cantate al Signore Alleluja
+
+Alleluja, passeranno i cieli
+
+Credo in te, Signor
+
+Santo Cansani
+
+Agnello di Dio
+
+Vieni e seguimi
+
+Vocazione
+
 
 Adeste Fideles
