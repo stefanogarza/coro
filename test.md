@@ -51,7 +51,7 @@ Astro del Ciel
 
 Dio s'è fatto come noi
 
-### II domenica del Tempo Ordinario - Anno A
+### 2a domenica del Tempo Ordinario - Anno A
 #### 18 gennaio 2026
 
 Cantate al Signore Alleluja
@@ -72,7 +72,7 @@ Dio s'è fatto come noi
 
 Eccomi !
 
-### III domenica del Tempo Ordinario - Anno A
+### 3a domenica del Tempo Ordinario - Anno A
 #### 25 gennaio 2026
 
 Cantate al Signore Alleluja
@@ -89,4 +89,39 @@ Vieni e seguimi
 
 Vocazione
 
-Adeste Fideles
+### 4a domenica del Tempo Ordinario - Anno A
+#### 1 febbraio 2026
+
+Benedici il Signore Anima Mia
+
+Gesù confido in te
+
+Gloria de Lourdes
+
+Alleluja, passeranno i cieli
+
+Canto di Beatitudine
+
+Giù dei colli (registrata)
+
+### 5a domenica del Tempo Ordinario - Anno A
+#### 8 febbraio 2026
+
+Luce del mondo
+
+Dono immenso
+
+Vieni e seguimi
+
+Ave Maria di Lourdes - E' l'ora che pia
+
+### 6a domenica del Tempo Ordinario - Anno A
+#### 15 febbraio 2026
+
+I cieli narrano
+
+Benedetto nei secoli il Signore
+
+Il tuo volto, Signore
+
+Ave Maria di Lourdes - E' l'ora che pia
