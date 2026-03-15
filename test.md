@@ -125,3 +125,49 @@ Benedetto nei secoli il Signore
 Il tuo volto, Signore
 
 Ave Maria di Lourdes - E' l'ora che pia
+
+### 1a domenica di Quaresima - Anno A
+#### 22 febbraio 2026
+
+Se tu mi accogli
+
+Purificami o Signore
+
+Madre sul Gogota
+
+Chi mi seguirà
+
+### 2a domenica di Quaresima - Anno A
+#### 1 marzo 2026
+
+Il tuo volto, Signore
+
+Ha sete di te, Signore, l'anima mia
+
+Signore, Dolce volto
+
+Per me sola patria il tuo volto
+
+### 3a domenica di Quaresima - Anno A
+#### 8 marzo 2026
+
+Se tu conoscessi il dono di Dio
+
+Tu, fonte viva
+
+Amore abbandonato
+
+Madre sul Golgota
+
+### 4a domenica di Quaresima - Anno A
+#### 15 marzo 2026
+
+O fonte della luce
+
+Signore in te io credo
+
+Il Signore è il mio pastore
+
+Agnello di Dio
+
+Madre sul Golgota
